@@ -3,7 +3,7 @@ Soy ANNIE GÓNGORA
 
 
 
-Desarroladora en Proceso ☺️
+Desarrolladora en Proceso ☺️
 
 
 
